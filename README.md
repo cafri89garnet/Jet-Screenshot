@@ -207,4 +207,4 @@ Jet Screenshot is offered as a full free version with all features and updates i
 Experience the power of Jet Screenshot today! Download now and enhance your screenshot capabilities like never before.
 
 ---
-**Last updated:** 2026-09-30 22:50:00 UTC
+**Last updated:** 2026-10-01 01:50:28 UTC
